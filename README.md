@@ -1,5 +1,3 @@
-# samad
-my CV
 
 
 https://twitter.com/Samadgarba1/status/1166364184583581696?s=20
